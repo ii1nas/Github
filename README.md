@@ -4,11 +4,19 @@
 
 
 https://www.youtube.com/watch?v=AUj2AT24zyo
+
+
  وهنا لتعلم كيفية استخدام القيت فقط 
 
  
  https://www.youtube.com/watch?v=O2MuVlw_nik
+
+ 
  وهنا شرح مفصل لكيفية استخدام القيت هب 
+
+ 
+
+ 
 
 
  
